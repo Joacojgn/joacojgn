@@ -1,4 +1,4 @@
- *Soy* __Joaquín González Nogueira__ de 4°1 avionica
-Comisión B 🧐🍷
+ *Soy* __Juaquín González Noguera__ de 4°1 avionica
+Comición B 🧐🍷
 Cuarteto de nos god 🎸
-Que alguien me pase la tarea de matemática 🥶🥶🥶
+Que algien me pase la tarea de matemática 🥶🥶🥶 instaaaaaaaaaaaaaa
